@@ -1,7 +1,4 @@
-# chinsyew.github.io
-Markleighn Daphne S. Banquiles
-
-# wave to earth
+***#wave to earth***
 
 ![picture](https://github.com/chinsyew/chinsyew.github.io/assets/150876685/6632d234-1b0c-45e0-b940-08c73aa53c6b)
 
