@@ -1,6 +1,6 @@
 # chinsyew.github.io
 
-# WAVE TO EARTH
+# **WAVE TO EARTH**
 
 ![picture](https://github.com/chinsyew/chinsyew.github.io/assets/150876685/6632d234-1b0c-45e0-b940-08c73aa53c6b)
 
@@ -23,13 +23,13 @@ The name ***'Wave to Earth'*** reveals the band's desire to ***"become the new w
 ![danielkim](https://kpopping.com/documents/a8/5/Daniel-Kim-fullBodyPicture(1).webp?v=a6674)
 Photo by kpopping https://kpopping.com/documents/a8/5/Daniel-Kim-fullBodyPicture(1).webp?v=a6674
 
-### **Dong Kyu Shin**
+### **Dong Kyu Shin (Dong Q)**
 ![dongkyushin](https://kpopping.com/documents/85/3/Dong-Q-fullBodyPicture(1).webp?v=f4465)
 Photo by kpopping https://kpopping.com/documents/85/3/Dong-Q-fullBodyPicture(1).webp?v=f4465
 
-### **John Cha**
-![johncha](https://kpopping.com/documents/3e/5/social-widget/John-Cha-facePicture(1).webp?v=de2b5)
-Photo by kpopping https://kpopping.com/documents/3e/5/social-widget/John-Cha-facePicture(1).webp?v=de2b5
+### **John Cha (Soonjong Cha)**
+![johncha](https://kpopping.com/documents/b2/4/John-Cha-fullBodyPicture(1).webp?v=f4465)
+Photo by kpopping https://kpopping.com/documents/b2/4/John-Cha-fullBodyPicture(1).webp?v=f4465
 
 > ## Playlist
 
