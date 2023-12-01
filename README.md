@@ -19,6 +19,7 @@ With the primary motto of *"All Self-made,"* all recording, mixing, and masterin
 The name ***'Wave to Earth'*** reveals the band's desire to ***"become the new wave"*** and expand its own universe across the world.
 
 > ## Members
+
 ### **Daniel Kim**
 ![danielkim](https://kpopping.com/documents/a8/5/Daniel-Kim-fullBodyPicture(1).webp?v=a6674)
 Photo by kpopping https://kpopping.com/documents/a8/5/Daniel-Kim-fullBodyPicture(1).webp?v=a6674
