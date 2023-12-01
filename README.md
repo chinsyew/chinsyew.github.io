@@ -32,6 +32,8 @@ Photo by kpopping https://kpopping.com/documents/85/3/Dong-Q-fullBodyPicture(1).
 ![johncha](https://kpopping.com/documents/b2/4/John-Cha-fullBodyPicture(1).webp?v=f4465)
 Photo by kpopping https://kpopping.com/documents/b2/4/John-Cha-fullBodyPicture(1).webp?v=f4465
 
+---
+
 > ## Playlist
 
 <div class="embed-spotify-list">
