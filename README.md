@@ -4,7 +4,7 @@
 
 ![picture](https://github.com/chinsyew/chinsyew.github.io/assets/150876685/6632d234-1b0c-45e0-b940-08c73aa53c6b)
 
-[Facebook](https://www.facebook.com/wavetoearth?mibextid=ZbWKwL) / [Instagram](https://instagram.com/wave_to_earth?igshid=YTQwZjQ0NmI0OA==) / [X](https://x.com/wave_to_earth?t=hmEwoTbfXitHCgRKVx1A9g&s=09) / [Youtube](https://www.youtube.com/@wavetoearth/featured) / [Tiktok](https://www.tiktok.com/@wavetoearthofficial)
+[Facebook](https://www.facebook.com/wavetoearth?mibextid=ZbWKwL) / [Instagram](https://instagram.com/wave_to_earth?igshid=YTQwZjQ0NmI0OA==) / [X](https://x.com/wave_to_earth?t=hmEwoTbfXitHCgRKVx1A9g&s=09) / [Youtube](https://www.youtube.com/@wavetoearth/featured) / [Tiktok](https://www.tiktok.com/@wavetoearthofficial) / [Spotify](https://open.spotify.com/artist/5069JTmv5ZDyPeZaCCXiCg?si=Uvj6gGIcSNe1pOP_Kn438g)
 
 ---
 
@@ -18,7 +18,18 @@ With the primary motto of *"All Self-made,"* all recording, mixing, and masterin
 
 The name ***'Wave to Earth'*** reveals the band's desire to ***"become the new wave"*** and expand its own universe across the world.
 
----
+> ## Members
+### **Daniel Kim**
+![danielkim](https://kpopping.com/documents/a8/5/Daniel-Kim-fullBodyPicture(1).webp?v=a6674)
+Photo by kpopping https://kpopping.com/documents/a8/5/Daniel-Kim-fullBodyPicture(1).webp?v=a6674
+
+### **Dong Kyu Shin**
+![dongkyushin](https://kpopping.com/documents/85/3/Dong-Q-fullBodyPicture(1).webp?v=f4465)
+Photo by kpopping https://kpopping.com/documents/85/3/Dong-Q-fullBodyPicture(1).webp?v=f4465
+
+### **John Cha**
+![johncha](https://kpopping.com/documents/3e/5/social-widget/John-Cha-facePicture(1).webp?v=de2b5)
+Photo by kpopping https://kpopping.com/documents/3e/5/social-widget/John-Cha-facePicture(1).webp?v=de2b5
 
 > ## Playlist
 
