@@ -4,7 +4,7 @@
 
 ![picture](https://github.com/chinsyew/chinsyew.github.io/assets/150876685/6632d234-1b0c-45e0-b940-08c73aa53c6b)
 
-[Facebook](https://www.facebook.com/wavetoearth?mibextid=ZbWKwL) / [Instagram](https://instagram.com/wave_to_earth?igshid=YTQwZjQ0NmI0OA==) / [X](https://x.com/wave_to_earth?t=hmEwoTbfXitHCgRKVx1A9g&s=09)
+[Facebook](https://www.facebook.com/wavetoearth?mibextid=ZbWKwL) / [Instagram](https://instagram.com/wave_to_earth?igshid=YTQwZjQ0NmI0OA==) / [X](https://x.com/wave_to_earth?t=hmEwoTbfXitHCgRKVx1A9g&s=09) / [Youtube](https://www.youtube.com/@wavetoearth/featured) / [Tiktok](https://www.tiktok.com/@wavetoearthofficial)
 
 ---
 
